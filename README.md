@@ -7,10 +7,7 @@ https://open.kakao.com/me/ssglanders2022
 https://twitter.com/ssglanders2022?t=lN79lxIHFhRPYgXoB8Ggxg&s=09 
 
 밴드
-'샤로아의 퍼리 소통방' 밴드로 초대합니다.
-https://band.us/n/afa776SaNfbdP
-밴드명을 검색해 가입할 수 있습니다.
-From Sharoa 
+https://band.us/@sharoadrawing
 
 디스코드 
 https://discord.gg/GCXFu7q38E 

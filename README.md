@@ -19,7 +19,7 @@ https://discord.gg/GCXFu7q38E
 https://www.facebook.com/sharoa0113 
 
 인스타그램 
-제 Instagram 계정은 @sharoa0113입니다. Instagram에서 사진과 동영상을 공유하면서 소식을 나누어보아요! https://www.instagram.com/invites/contact/?i=zkjt66tje0uy&utm_content=kyvwho1 
+https://www.instagram.com/sharoa0113/
 
 틱톡
 https://vt.tiktok.com/ZSd6raveY/ 

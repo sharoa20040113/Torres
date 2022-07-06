@@ -29,3 +29,6 @@ https://sharoadrawing.tistory.com/m
 
 유튜브 
 https://youtube.com/channel/UCZGjWJ0YzxaWN9o7ifw1UoA
+
+그림
+https://drive.google.com/drive/folders/1fcnoUCgIrTxB8xbfuTNN9QNiLI1tI0Lq?usp=sharing
